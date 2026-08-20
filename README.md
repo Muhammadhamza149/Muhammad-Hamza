@@ -1,4 +1,3 @@
-# Muhammad Hamza 
 ### Data Entry Specialist | PDF Conversion | Excel Expert
 
 📍 Pakistan | 💼 Available on Upwork
