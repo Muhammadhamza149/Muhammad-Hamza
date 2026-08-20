@@ -9,7 +9,7 @@
 
 ## 👨‍💼 About Me
 
-I'm **Muhammad Hamza**, a detail-oriented Data Entry & Document Processing Specialist with **6+ years of hands-on experience**. I help businesses and professionals with fast, reliable, and error-free document handling — whether it's converting, cleaning, or organizing data.
+I'm **Muhammad Hamza**, a detail-oriented Data Entry & Document Processing Specialist with **6+ years of hands-on experience**. I help businesses and professionals with fast, reliable, and error-free document handling  whether it's converting, cleaning, or organizing data.
 
 ---
 
